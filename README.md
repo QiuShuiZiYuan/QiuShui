@@ -1,3 +1,3 @@
 秋水资源网的宝藏图片
 网站包含众多高效率工具
-网址为：https://qsziyuan.com 点击链接直接跳转>>
+网址为：https://qiushuizy.com 点击链接直接跳转>>
